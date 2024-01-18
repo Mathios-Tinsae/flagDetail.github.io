@@ -1,0 +1,1 @@
+# flagDetail.github.io
